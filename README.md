@@ -1,1 +1,1 @@
-## AAmerican Greetings Test
+## American Greetings Test
